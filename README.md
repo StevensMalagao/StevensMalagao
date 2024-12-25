@@ -6,4 +6,4 @@ Soy Stevens, estudiante de Ingeniería Electrónica.
 
 -ESP32 lover.
 
--Quiero volver con mi ex.
+-Malo H.
