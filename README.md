@@ -1,3 +1,3 @@
-## ¿Qué pasa pues? 🐦‍🔥
+## ¿Qué pasa? 
 
 Soy Stevens. 
